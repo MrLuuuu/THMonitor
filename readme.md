@@ -1,1 +1,1 @@
-![wallpaper](https://imgse.com/i/QYgwbq)
+![QYgwbq.png](https://s2.ax1x.com/2019/12/06/QYgwbq.png)
